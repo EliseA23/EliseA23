@@ -1,4 +1,4 @@
-## About me: Elise 
+## About me: 
 ###
 
 ✨ Just a few facts about me: ✨ 
